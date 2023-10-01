@@ -1,4 +1,4 @@
-### Hi there, I'm Vadim Bayko - aka mmathers313 👋
+### Hi there, I'm Vadim Bayko - aka mmathers313 👋🏾
 
 ### Connect with me:
 [<img align="left" alt="mamthers313 | Telegram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/telegram.svg" />][telegram]
